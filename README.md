@@ -27,4 +27,4 @@ https://t.me/autoscript_willstore69/157
 
 Price/Harga : $53,00/800k - 1 year/tahun usage
 
-Berminat Hubungi: @user_legend
+Berminat Hubungi: https://t.me/user_legend
