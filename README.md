@@ -25,6 +25,6 @@ Fitur Bot Resseler Autoscript :
 Fitur Autoscript :
 https://t.me/autoscript_willstore69/157
 
-Price/Harga : $53,00/800k - 1 year/tahun usage
+Price/Harga : $50,00/700k - 1 year/tahun usage
 
 Berminat Hubungi: https://t.me/user_legend
