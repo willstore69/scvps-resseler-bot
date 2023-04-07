@@ -23,7 +23,7 @@ Fitur Bot Resseler Autoscript :
 - ping
 
 Fitur Autoscript :
-https://t.me/autoscript_willstore69/157
+https://t.me/onevpn_us/3113
 
 Price/Harga : $50,00/700k - 1 year/tahun usage
 
