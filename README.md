@@ -25,6 +25,6 @@ Fitur Bot Resseler Autoscript :
 Fitur Autoscript :
 https://t.me/onevpn_us/3136
 
-Price/Harga : $50,00/700k - 1 year/tahun usage
+Price/Harga : $45,00/650k - 1 year/tahun usage
 
 Berminat Hubungi: https://t.me/user_legend
